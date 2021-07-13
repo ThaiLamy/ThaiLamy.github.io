@@ -1,3 +1,3 @@
-<img src='https://i.imgur.com/BXliRdi.png'>
+<img src='https://imgur.com/HYv0N4G'>
 
 # Nhìn concac .-.
